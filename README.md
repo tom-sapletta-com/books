@@ -12,12 +12,3 @@ list of books I want to buy
 > 
 > [Maria Konnikova](https://lubimyczytac.pl/autor/109953/maria-konnikova)
 > 
-> 7,4 / 10
-> 
-> [24 ocen](https://lubimyczytac.pl/ksiazka/5000824/mysl-jak-pokerzysta-jak-nauczylam-sie-byc-czujna-kontrolowac-sytuacje-i-zwyciezac#ratingStarsHld)
-> 
-> [16 opinii](https://lubimyczytac.pl/ksiazka/5000824/mysl-jak-pokerzysta-jak-nauczylam-sie-byc-czujna-kontrolowac-sytuacje-i-zwyciezac#lista-opinii)
-> 
-> [0 dyskusji](https://lubimyczytac.pl/ksiazka/5000824/mysl-jak-pokerzysta-jak-nauczylam-sie-byc-czujna-kontrolowac-sytuacje-i-zwyciezac#opinie)
-> 
-> Wydawnictwo: [Agora](https://lubimyczytac.pl/wydawnictwo/326/agora/ksiazki)
